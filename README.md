@@ -63,4 +63,3 @@ Happy learning and exploring!
 **Author:** Abhinav Agarwal  
 **Contact:** abhinavagarwal9999@gmail.com
 
-*(Include your contact information or relevant details for readers to reach out if necessary.)*
